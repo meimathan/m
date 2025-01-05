@@ -1,1 +1,1 @@
-queen
+super queen
